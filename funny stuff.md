@@ -9,3 +9,6 @@ booting members LOL
 
 .
 <img width="310" height="85" alt="image" src="https://github.com/user-attachments/assets/1fcf4a19-2f2a-49d9-859b-189ab9fb4dc4" />
+
+deleting messages<img width="760" height="945" alt="image" src="https://github.com/user-attachments/assets/4bfde1d8-3e4e-453e-a364-e172087f933b" />
+
