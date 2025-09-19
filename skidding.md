@@ -6,5 +6,4 @@ i wonder for what..
 <img width="1294" height="189" alt="image" src="https://github.com/user-attachments/assets/ddb0cd28-8cfe-433b-ba81-f6e3f951e01b" />
 
 didnt have to say twice
-![Uploading image.png…]()
-
+<img width="398" height="166" alt="image" src="https://github.com/user-attachments/assets/5cb8bfaf-8a5e-4cc6-a986-26dd5b7fbdfa" />
