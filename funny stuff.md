@@ -23,4 +23,7 @@ deleting messages
 <img width="737" height="361" alt="image" src="https://github.com/user-attachments/assets/0115c191-923c-4222-be48-ccd202544883" />
 
 trying to change identity i guess
-<img width="720" height="1600" alt="image" src="https://github.com/user-attachments/assets/17bc990a-d88c-429a-82e3-8637571ab7b8" />
+
+
+
+<img width="720" height="965" alt="image" src="https://github.com/user-attachments/assets/17bc990a-d88c-429a-82e3-8637571ab7b8" />
