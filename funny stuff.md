@@ -7,8 +7,5 @@ booting members LOL
 
 <img width="461" height="295" alt="image" src="https://github.com/user-attachments/assets/e5e0ac3d-25a7-4cbe-a1ec-046389ac5307" />
 
-
-
-
-
+.
 <img width="310" height="85" alt="image" src="https://github.com/user-attachments/assets/1fcf4a19-2f2a-49d9-859b-189ab9fb4dc4" />
