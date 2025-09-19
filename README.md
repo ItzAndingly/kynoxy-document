@@ -1,5 +1,6 @@
-# Kynoxy-Asteria Document
+# Asteria Document V1
 
-In this document we will be exposing Kynoxy, or mostly known for owning a OGFN project called "Asteria", hosting chapter 4 season 2
-
-Please star this repo and share it with everyone on the community to show the world who this guy is.
+Asteria is a heavily glazed ogfn project, that uses a leaked GS called "magma". You should be aware of this.
+He claims he "coded" his gs, However he uses magma. Claiming that its his with no sort of credits.
+He also uses "Reload Backend" Which is also a free backend made by Burlone413 & Andingly.
+No Matter what if he uses this. Atleast give credits and dont claim its yours.  
