@@ -4,3 +4,7 @@ Pictures of kynoxy skidding (lol)
 
 i wonder for what..
 <img width="1294" height="189" alt="image" src="https://github.com/user-attachments/assets/ddb0cd28-8cfe-433b-ba81-f6e3f951e01b" />
+
+didnt have to say twice
+![Uploading image.png…]()
+
