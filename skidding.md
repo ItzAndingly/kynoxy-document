@@ -9,3 +9,5 @@ didnt have to say twice
 
 
 <img width="398" height="166" alt="image" src="https://github.com/user-attachments/assets/5cb8bfaf-8a5e-4cc6-a986-26dd5b7fbdfa" />
+
+also got a pic of him saying help me with reload backend please! 
