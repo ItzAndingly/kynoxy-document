@@ -1,4 +1,4 @@
-# Asteria Document V1
+# Asteria Document V1 (Made By Specx & Andingly)
 
 Asteria is a heavily glazed ogfn project that uses a leaked GS by magma.
 He claims he "coded" his gs, However he uses magma gs. Claiming that its his with no sort of credits.
