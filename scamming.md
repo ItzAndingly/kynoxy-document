@@ -8,3 +8,4 @@ He scammed him for his hardwork, that he is still using.
 <img width="829" height="249" alt="image" src="https://github.com/user-attachments/assets/073c9b8b-2c2e-4c29-ab6c-b320606017cc" />
 
 <img width="1139" height="161" alt="image" src="https://github.com/user-attachments/assets/5375b6c8-81a3-447a-9234-661ce9a1bb5c" />
+<img width="477" height="144" alt="image" src="https://github.com/user-attachments/assets/cda3e971-f80e-4c19-8a02-ef9302eb9385" />
