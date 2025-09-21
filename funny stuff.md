@@ -36,3 +36,6 @@ sending cheater to my project (dmed this guy that i banned for cheating for the 
 <img width="433" height="201" alt="image" src="https://github.com/user-attachments/assets/b7ea04ae-9811-4da6-a4d6-03820bcdc57c" />
 <img width="965" height="212" alt="image" src="https://github.com/user-attachments/assets/cc1e7ba4-e68d-415a-91ad-c5ead12cebdd" />
 
+
+leaking ips for ban evading is mad crazy
+<img width="1079" height="1512" alt="image" src="https://github.com/user-attachments/assets/4946dfec-b10c-4b07-8f6a-62dd69634f99" />
