@@ -1,5 +1,7 @@
 Pictures of kynoxy skidding (lol)
 
+<img width="541" height="108" alt="image" src="https://github.com/user-attachments/assets/6a8edd1c-dd49-4da0-bcd0-352b1ce2ce65" />
+he needs a j*b
 <img width="837" height="269" alt="skidding1" src="https://github.com/user-attachments/assets/4dd26311-7bce-4c3c-a028-53c26fa054dd" />
 
 i wonder for what..
