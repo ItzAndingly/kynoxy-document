@@ -6,3 +6,4 @@ He also uses "Reload Backend" Which is also an open sourced backend made by Burl
 No Matter what if he uses this. Atleast give credits and dont claim its yours.
 
 He said hes going to put it news in his discord, however he hasnt. top 100 skids
+Also says hes 19 years old, then says i can be whatever age i want. Telling me hes 14.
