@@ -36,3 +36,4 @@ sending cheater to my project (dmed this guy that i banned for cheating for the 
 <img width="433" height="201" alt="image" src="https://github.com/user-attachments/assets/b7ea04ae-9811-4da6-a4d6-03820bcdc57c" />
 <img width="965" height="212" alt="image" src="https://github.com/user-attachments/assets/cc1e7ba4-e68d-415a-91ad-c5ead12cebdd" />
 
+<img width="541" height="108" alt="image" src="https://github.com/user-attachments/assets/2efb4e73-2d1b-459e-9ec8-86f95d99ea56" />
