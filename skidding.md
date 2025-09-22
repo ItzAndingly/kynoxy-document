@@ -25,3 +25,8 @@ not real :sob:
 
 
 <img width="594" height="348" alt="image" src="https://github.com/user-attachments/assets/964c3045-1ac9-44b5-bc9c-9bae65723030" />
+
+core backend 😭
+
+<img width="259" height="109" alt="image" src="https://github.com/user-attachments/assets/a0641d47-7ea0-48ce-9816-891f1aa88427" />
+
