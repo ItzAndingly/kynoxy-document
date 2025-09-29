@@ -5,4 +5,4 @@ kynoxy face (he's about to rob a bank)
 kynoxy sharing a "spoofer" (which is a cheat he was gonna use for interlude)
 
 
-<img width="374" height="180" alt="image" src="https://github.com/user-attachments/assets/0f57234d-a10d-468e-a194-088883cd538d" />
+wait
