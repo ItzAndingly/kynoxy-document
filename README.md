@@ -11,4 +11,4 @@ Also says hes 19 years old, then says i can be whatever age i want. Telling me h
 
 <img width="435" height="241" alt="image" src="https://github.com/user-attachments/assets/f25e3f89-7fd8-4395-abee-c8f60638446a" />
 
-lol
+lol this is crazy
