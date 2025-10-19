@@ -30,3 +30,7 @@ core backend 😭
 
 <img width="259" height="109" alt="image" src="https://github.com/user-attachments/assets/a0641d47-7ea0-48ce-9816-891f1aa88427" />
 
+
+skid final boss
+
+<img width="486" height="441" alt="image" src="https://github.com/user-attachments/assets/d6717661-67ce-430e-bddc-edbf3cc01817" />
